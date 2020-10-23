@@ -1,2 +1,0 @@
-# yoooloo
-progg2
